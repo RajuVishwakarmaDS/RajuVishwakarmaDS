@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RajuVishwakarma
+- 👀 I’m interested in data analytics
+- 🌱 I’m currently learning data analytics
+- 📫 how you can reach to me - premraju90@gmail.com
